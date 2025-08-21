@@ -2,4 +2,3 @@
 <br>
 i am a pervert for my friends and gap moe wives.
 <br>
-(#1 ariake shoutarou and juurou sayashi gooner)
