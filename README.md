@@ -1,3 +1,1 @@
-[![uuultrac-yomi](https://github.com/user-attachments/assets/33d05b5d-7b2f-4f5e-b411-e81d1a10e98e)](https://youtu.be/Hmu5Xda5e8k)
-<br>
-
+<img width="600" height="252" alt="image" src="https://github.com/user-attachments/assets/69cb2238-17e5-4c7e-bd81-e8eede7f3339" />
