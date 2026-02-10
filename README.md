@@ -1,3 +1,4 @@
-<img width="314" height="251" alt="ic beastbirthday" src="https://github.com/user-attachments/assets/d48b2f2d-3da3-4c5d-b3d8-53f75c9368de" />
+<img width="219" height="360" alt="image" src="https://github.com/user-attachments/assets/15d67af5-89d9-4a91-b176-d342ea9b8ed9" />
+
 <br>
-pfp @moyo1030 ac @beastbirthday
+pfp @moyo1030
