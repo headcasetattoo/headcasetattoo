@@ -1,6 +1,1 @@
-favorite color: blue
-<br>
-favorite cigarette: marlboro reds
-<br> 
-i forgot what else i was going to add sorry.
-la la lala wait 'til i get my money right
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cf66nna64rrx289jrrl8xx1xk&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
