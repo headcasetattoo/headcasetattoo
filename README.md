@@ -1,7 +1,7 @@
 
 
+https://github.com/user-attachments/assets/3e676b27-2268-43db-a92c-68dae902bcc8
 
 
-https://github.com/user-attachments/assets/9f9bf2f8-e763-4d10-873d-1f014b4feb03
 
 ac @/whatkyle19 tumblr
