@@ -1,9 +1,2 @@
-
-
-https://github.com/user-attachments/assets/3e676b27-2268-43db-a92c-68dae902bcc8
-
-
-
-ac @/whatkyle19 tumblr
+<img width="225" height="125" alt="image" src="https://github.com/user-attachments/assets/8e81cf86-718b-46fd-8407-d3a753159667" />
 <br>
-bjj (blow job jitsu) enthusiast
